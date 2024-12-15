@@ -1,1 +1,1 @@
-professional skid and boilerplate coder
+professional boilerplate coder
